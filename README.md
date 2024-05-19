@@ -12,12 +12,9 @@
 - ⚡ Stack Overflow: https://stackoverflow.com/users/19803830/backout
 - 📫 Gmail: karl.alberto-smchs@smgeducation.org
 - 🐤 X: https://x.com/PuertoNico1
-- 😄 Reddit (I have an embarassing username Ik): https://www.reddit.com/user/tradingdogwaterforOp/
 - 😄 Roblox: https://www.roblox.com/users/3426251748/profile
 - 👋 Youtube: https://www.youtube.com/channel/UCZLQ3aRgYjh0wQM4IsoTOPQ
-
-
-
+- 😄 Reddit (I have an embarassing username Ik): https://www.reddit.com/user/tradingdogwaterforOp/
 
 
 
